@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Arta Programmer
+- 👀 ID me at Rubika application Iranian - @Schopfer
+- Good luck
